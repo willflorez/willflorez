@@ -4,7 +4,7 @@
 
 ![Alt text](big-data-gestion-de-informacion.jpg)
 
-
+# He convertido mi pasión por el análisis de datos en mi profesión
 
 # 💫 Sobre Mi:
 Me considero una persona digna de toda confianza, entrego de mi todo aquello que haga crecer a quienes me rodean, siempre tengo una voz de aliento para quien la necesita, me gusta entregar frases de pequeña sabiduría que inspire a los demás, estoy convencido que estoy en el mundo para hacer un mejor lugar de él. Disfruto trabajar con equipos multi disciplinarios, porque el aprendizaje es enorme, entrego mi conocimiento, de esa manera al repetir lo que ya sé, refuerzo mis habilidades y descubro nuevas maneras de llegar a las personas.

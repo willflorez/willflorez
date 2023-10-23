@@ -1,11 +1,8 @@
 ### Hola 👋
 
-# Soy William Flórez Analista de Datos
+# Soy William Flórez
 
 ![Alt text](big-data-gestion-de-informacion.jpg)
-
-
-
 
 
 
